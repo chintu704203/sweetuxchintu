@@ -14,16 +14,16 @@
 
 
 <h2 align="center">
-    𖢵 ᴀʅσηҽ χ мυѕι¢ 𖢵
+     ˹ꜱᴡᴇᴇᴛʏ ✘ ᴍᴜsɪᴄ ˼🕊
 
 ★ 𝙷𝙴𝚁𝙾𝙺𝚄 + 𝚅𝙿𝚂 ★
 </h2>
-<img src="https://readme-typing-svg.herokuapp.com?color=FF0000&width=420&lines=♦𝙳𝙴𝙿𝙻𝙾𝚈+𝙾𝙽+𝙷𝙴𝚁𝙾𝙺𝚄♦;♨️+𝙽𝙾+𝙷𝙴𝚁𝙾𝙺𝚄+𝙱𝙰𝙽+𝙸𝚂𝚂𝚄𝙴+𝙰𝙻𝚂𝙾+𝚅𝙿𝚂+𝙳𝙴𝙿𝙻𝙾𝚈+📍+𝙿𝚁𝙴𝚂𝙴𝙽𝚃;🎭+𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈+𝗔𝗟𝗢𝗡𝗘+🎭">
+<img src="https://readme-typing-svg.herokuapp.com?color=FF0000&width=420&lines=♦𝙳𝙴𝙿𝙻𝙾𝚈+𝙾𝙽+𝙷𝙴𝚁𝙾𝙺𝚄♦;♨️+𝙽𝙾+𝙷𝙴𝚁𝙾𝙺𝚄+𝙱𝙰𝙽+𝙸𝚂𝚂𝚄𝙴+𝙰𝙻𝚂𝙾+𝚅𝙿𝚂+𝙳𝙴𝙿𝙻𝙾𝚈+📍+𝙿𝚁𝙴𝚂𝙴𝙽𝚃;🎭+𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈+𝗖𝗛𝗜𝗡𝗧𝗨+🎭">
 <p align="center">
-  <img src="https://te.legra.ph/file/265e29bc52c7a32b67081.jpg">
+  <img src="https://graph.org/file/cb473aad5582863e26851.jpg">
 </p>
 
-**𝙏𝙀𝙎𝙏 𝘽𝙊𝙏 ➣ [𝐀ʟᴏɴᴇ 𝐌ᴜsɪᴄ](https://t.me/AloneXRobot)**
+**𝙏𝙀𝙎𝙏 𝘽𝙊𝙏 ➣ [ ˹ꜱᴡᴇᴇᴛʏ ✘ ᴍᴜsɪᴄ ˼🕊](https://t.me/Gleam_moon)**
 
 
 
